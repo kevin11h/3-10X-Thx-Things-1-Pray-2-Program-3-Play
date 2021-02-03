@@ -4,9 +4,9 @@
 3. Play 
 ## 3 10X Thx Things
 
-1. Cook (TITHE)
+1. Cook (TITHE-passover offering sacred sacrifices spices perfect perfumes fragrant incense frankincense)
 2. Code
-3. Clean Clothes
+3. Clean Clothes (white robe)
 
 
 Instructive (Learning Living)
